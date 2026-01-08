@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Punit Dixit  
+# 👋 Hi, I'm Puneet Dixit  
 
 ### 🚀 About Me
 - 🎓 B.Tech CSE (3rd Year)
